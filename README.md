@@ -16,4 +16,5 @@
 ![tumblr_dbb293cb0c6a6b81153a291e0d6273af_f80ce7d7_250](https://github.com/user-attachments/assets/839f802b-0ff7-43cd-8bae-ab85127812ef)
 stamps belongs to @softlvr & @leeedl 
 | borders belongs to @selysie & @enchanthings
-![Uploading tumblr_7588a4bee0a3721ad24b0904e57f491a_4becb9cf_1280.png…]()
+![tumblr_7588a4bee0a3721ad24b0904e57f491a_4becb9cf_1280](https://github.com/user-attachments/assets/84edf264-c496-47db-a77d-00127d339f9b)
+
